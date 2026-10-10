@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Pandas**
 
-- 📫 How to reach me **yashhrana130@gmail.com**
+- 📫 How to reach me **yr673317@gmail.com**
 
 - ⚡ Fun fact **I think I am a serious head**
 
